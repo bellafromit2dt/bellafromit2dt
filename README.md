@@ -3,4 +3,5 @@
 - 🔭 I’m currently organising and building my life system
 - 💬 Ask me about ⛷️ 🏸 📖 🦮
 - 📫 Connect me on LinkedIn
+
 PS: Reactivated this account in 2026 --- earlier activity was under previous company accounts
